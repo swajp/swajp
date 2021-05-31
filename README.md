@@ -1,12 +1,5 @@
-### Hi there, I'm Míra 👋
 
-
-
-## I'm a Student!
-
-- 🐱‍👤 I’m currently working on everything!
-- 🥵 I’m currently learning everything
-- ⚡ I’m trying learn everyday 
+- 🥵 Vitus je buh
 
 ### Connect with me:
 
